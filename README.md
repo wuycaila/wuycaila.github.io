@@ -1,1 +1,1 @@
-# wuycaila.github.io
+# [wuycaila.gioithub.](https://hoo.be/jinrihlw)
